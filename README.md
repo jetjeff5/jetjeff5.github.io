@@ -1,1 +1,3 @@
 # jetjeff5.github.io
+interests: Animation and music! 
+favorite bands: The Beths, Twin Peaks, King Gizzard and the Lizard Wizard, The Strokes, and many more! 
